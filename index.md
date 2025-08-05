@@ -1,6 +1,6 @@
 # QuickVibe Privacy Policy
 
-Last updated: 05/08/2025
+Last updated: 06/08/2025
 
 QuickVibe ("we", "us", or "our") is committed to protecting your privacy. This Privacy Policy describes how QuickVibe handles information when you use our mobile application.
 
