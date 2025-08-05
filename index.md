@@ -1,4 +1,4 @@
-**Privacy Policy**
+# QuickVibe Privacy Policy
 
 Last updated: 05/08/2025
 
